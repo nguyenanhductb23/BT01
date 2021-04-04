@@ -1,3 +1,3 @@
 # BT01
 
-Nhiều bài dễ em bỏ qua ạ.
+Nhiều bài (trừ câu 19, 25) dễ em bỏ qua ạ.
